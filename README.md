@@ -1,6 +1,6 @@
 # Lab Meetings
 
-Tuesday 11 AM (Zoom or Neurosurgery Conference Room, McMillan 5th Floor)
+Tuesday 9 AM (Zoom or Neurosurgery Conference Room, McMillan 5th Floor)
 
 * 5/25/21 No Meeting
 * 6/1/21 Anthony Wang
